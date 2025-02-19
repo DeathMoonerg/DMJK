@@ -1,0 +1,2 @@
+# DMJK
+TUGAS 1 DMJK
